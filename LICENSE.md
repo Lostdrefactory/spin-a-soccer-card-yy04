@@ -1,4 +1,4 @@
-#  
+#  top spin a soccer card Script is the best spin a soccer card Script, featuring instant win and god mode. Safe and powerful for all your needs.
 
 
 
